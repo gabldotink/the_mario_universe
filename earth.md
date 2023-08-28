@@ -12,7 +12,7 @@ Most of these games aren’t solidly set on Earth, but the arcade _Mario Bros._ 
 
 In _VS. Wrecking Crew_ (1984), Mario and Luigi wreck buildings. In _Wrecking Crew_ (1985), this setting carries over, with the added feature of mauling your boss with a hammer. _Wrecking Crew ’98_ (1998, duh) has similar gameplay, this time taking place in the Mushroom Kingdom.
 
-In _Mario is Missing!_ (1992/1993) and _Mario’s Time Machine_ (1993/1994), characters travel to several cities and time periods on Earth. No differentiation is made between Earth and the Mushroom World in these games.
+In _Mario is Missing!_ (1992) and _Mario’s Time Machine_ (1993), characters travel to several cities and time periods on Earth. No differentiation is made between Earth and the Mushroom World in these games.
 
 In the DIC cartoon series — _The Super Mario Bros. Super Show!_ (1989), _The Adventures of Super Mario Bros. 3_ (1990), and _Super Mario World_ (1991) — Earth (also known as the “real world,” somehow not causing a bit of an existential crisis for the Mushroom Kingdom’s natives) is where the Mario Bros. came from after getting sucked into the Brooklyn water system while on a job. They can travel between the two worlds using warp pipes.
 
