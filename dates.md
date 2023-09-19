@@ -4,4 +4,10 @@ Several real-world dates are mentioned in various media. These include birthdays
 
 ## annual events
 
-* October 11 – Mario’s birthday; likely also Luigi’s birthday.
+* January 16 – Blue (from _Donkey Kong Country 3_)’s birthday.
+* February 5 – Bowser’s birthday.
+* March 3 – Bowser Jr.’s birthday.
+* March 25 – Merlee (from _Super Paper Mario_)’s birthday.
+* May 5 – Mimi (from _Super Paper Mario_)’s birthday.
+* August 29 – Rabbid Peach’s birthday.
+* October 11 – Mario’s birthday; likely also Luigi’s birthday.
