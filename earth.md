@@ -18,7 +18,7 @@ In the DIC cartoon series — _The Super Mario Bros. Super Show!_ (1989), _T
 
 In the _Mario & Sonic_ series, characters from the titular franchises compete in Earth’s Olympic Games.
 
-In _Mario Kart Tour_ (2019–) and the Booster Course Pass of _Mario Kart 8 Deluxe_ (2017–), tracks based on Earth cities such as New York City, United States; Paris, France; and Sydney, Australia appear.
+In _Mario Kart Tour_ (2019–2023) and the Booster Course Pass of _Mario Kart 8 Deluxe_ (2017–2023), tracks based on Earth cities such as New York City, United States; Paris, France; and Sydney, Australia appear.
 
 In _The Super Mario Bros. Movie_ (2023), Mario and Luigi travel through a warp pipe from the Brooklyn sewers to the Mushroom Kingdom, and back again.
 
