@@ -4,4 +4,4 @@ Several real-world dates are mentioned in various media. These include birthdays
 
 ## annual events
 
-* October 11 – Mario’s birthday.
+* October 11 – Mario’s birthday; likely also Luigi’s birthday.
