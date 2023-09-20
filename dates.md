@@ -9,7 +9,7 @@ Several real-world dates are mentioned in various media. These include birthdays
 * March 3 – Bowser Jr.’s birthday.
 * March 25 – Merlee (from _Super Paper Mario_)’s birthday.
 * May 5 – Mimi (from _Super Paper Mario_)’s birthday.
-* August 29 – Rabbid Peach’s birthday.
+* August 29 – Rabbid Peach’s birthday (also the release date of _Mario + Rabbids Kingdom Battle_).
 * October 11 – Mario’s birthday; likely also Luigi’s birthday.
 
 ## specific events
