@@ -4,7 +4,7 @@ Time travel is used several times in _Mario_.
 
 In _Yoshi’s Island&nbsp;DS_ (2006), Bowser and Kamek travel back in time to steal the stars from the seven star children (one of whom is, in fact, Bowser. The power was inside him all along).
 
-In _Yoshi’s New Island_ (2014), Bowser travels back again just to be annoying. Mario also travels back, disguised as “Mr. Pipe.”
+In _Yoshi’s New Island_ (2014), Bowser travels back again just to be annoying. Mario also travels back, disguised as “Mr.&nbsp;Pipe.”
 
 In _Mario & Luigi: Partners in Time_ (2005), Mario and Luigi and a bunch of other characters time travel using either Professor E.&nbsp;Gadd’s time machine or a “time hole.”
 
