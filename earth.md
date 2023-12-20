@@ -2,7 +2,7 @@
 
 Earth is the real world but inside a fictional world.
 
-Earth is the counterpart to what we’ll call the “Mushroom World” (including the Mushroom Kingdom and other fantastical places). Mario and Luigi are often said to have come from Earth&#8239;&mdash;&thinsp;specifically Brooklyn, New York City, New York, United States.
+Earth is the counterpart to what we’ll call the “Mushroom World” (including the Mushroom Kingdom and other fantastical places). Mario and Luigi are often said to have come from Earth&mdash;specifically Brooklyn, New York City, New York, United States.
 
 The entire Mario franchise appears to take place on Earth from _Donkey Kong_ (1981) until _Super Mario Bros._ (1985), which is set in the now-familiar Mushroom Kingdom. In these games, Mario (a.k.a. Jumpman in _Donkey Kong_) performs various jobs, including carpentry, plumbing, cement factory work, and Vietnam War bombing.
 
@@ -14,7 +14,7 @@ In _VS.&nbsp;Wrecking Crew_ (1984), Mario and Luigi wreck buildings. In _Wreckin
 
 In _Mario is Missing!_ (1992) and _Mario’s Time Machine_ (1993), characters travel to several cities and time periods on Earth. No differentiation is made between Earth and the Mushroom World in these games.
 
-In the DIC cartoon series&#8239;&mdash;&thinsp;_The Super Mario Bros. Super Show!_ (1989), _The Adventures of Super Mario Bros.&nbsp;3_ (1990), and _Super Mario World_ (1991)&#8239;&mdash;&thinsp;Earth (also known as the “real world,” somehow not causing a bit of an existential crisis for the Mushroom Kingdom’s natives) is where the Mario Bros. came from after getting sucked into the Brooklyn water system while on a job. They can travel between the two worlds using warp pipes.
+In the DIC cartoon series&mdash;_The Super Mario Bros. Super Show!_ (1989), _The Adventures of Super Mario Bros.&nbsp;3_ (1990), and _Super Mario World_ (1991)&mdash;Earth (also known as the “real world,” somehow not causing a bit of an existential crisis for the Mushroom Kingdom’s natives) is where the Mario Bros. came from after getting sucked into the Brooklyn water system while on a job. They can travel between the two worlds using warp pipes.
 
 In the _Mario&nbsp;& Sonic_ series, characters from the titular franchises compete in Earth’s Olympic Games.
 
