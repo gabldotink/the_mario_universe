@@ -14,7 +14,8 @@ Several real-world dates are mentioned in various media. These include birthdays
 
 ## specific events
 
-* February&nbsp;5, 1989 &ndash;&nbsp;Bowser is born.
+* February&nbsp;5, 1989 &ndash;&nbsp;Bowser is born.[^1]
 * 1993/1994 &ndash;&nbsp;The events of _Mario’s Time Machine_ take place.
-* March&nbsp;3, 2010 &ndash;&nbsp;Bowser&nbsp;Jr. is born.
+* March&nbsp;3, 2010 &ndash;&nbsp;Bowser&nbsp;Jr. is born.[^1]
 
+[^1]: https://twitter.com/MarioBrothBlog/status/1665739632615497729
